@@ -1,2 +1,0 @@
-# dzixora
-Dzixora Creative Website
